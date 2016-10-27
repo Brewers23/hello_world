@@ -1,2 +1,5 @@
 # hello_world
-First repository
+We are the Borg
+You will be assimilated 
+Your conciousness will be added to the collective
+resistance is futil
